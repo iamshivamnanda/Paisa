@@ -5,6 +5,10 @@ Download Apk  - [Click Here]
 https://www.mediafire.com/file/b9od1lka4e0npfi/paisa.apk/file
 ```
 
+<center>
+  <img src="https://i.ibb.co/6rst3cm/paisa-app-Medium.jpg" />
+   <img height="500px" src="https://i.ibb.co/MB7s9tf/ezgif-com-gif-maker-9.gif" />
+  </center>
 
 ## How to Use 
 
